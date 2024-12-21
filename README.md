@@ -2,8 +2,16 @@
 
 Blake Lively demanda a Justin Baldoni por acoso y campaña de desprestigio
 Cuatro meses después del estreno y la polémica de ‘It Ends with Us’, Blake Lively presentó una demanda contra su coprotagonista, Justin Baldoni.
-Corina GonzálezCorina Gonzálezgo_corina
-Actualizado a 21 de diciembre de 2024 12:06 EST
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+
 Cuatro meses después del estreno y la polémica de ‘It Ends with Us’, Blake Lively presentó una demanda contra su coprotagonista, Justin Baldoni.
 En agosto se estrenó la película ‘It Ends with Us’, basada en la novela homónima de Colleen Hoover, en medio de una ola de drama entre los protagonistas, Blake Lively y el también director de la cinta, Justin Baldoni, así como el esposo de la actriz, Ryan Reynolds.
 
